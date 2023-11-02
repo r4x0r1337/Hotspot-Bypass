@@ -5,9 +5,4 @@ santai saya ada solusi;
 
 sabaq sat "projek under construction"
 
-yang benar
-Meow1337
---------
-
-
-123
+-Meow1337
