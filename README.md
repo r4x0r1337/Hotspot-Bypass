@@ -7,5 +7,5 @@ sabaq sat "projek under construction"
 
 -Meow1337
 
-Nak config telco?? pm tele "https://t.me/twstestsys"
+Nak config VPN?? pm tele "https://t.me/twstestsys"
 
